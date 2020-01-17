@@ -1,1 +1,1 @@
-# Gimp-Farssi
+On joo, laadukasta projektia
